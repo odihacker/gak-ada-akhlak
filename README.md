@@ -1,0 +1,2 @@
+# gak-ada-akhlak
+Tolol
